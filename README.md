@@ -3,4 +3,4 @@
 this is sooooo much working bruhh:(
 
 
-how can i add this to that https://y0un15.me/nextjs-blog-theme/
+finally i need just alot of fixing to this `https://y0un15.me/Blog/` to be my ofical Blog Yuupppyy
